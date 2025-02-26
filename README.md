@@ -1,12 +1,13 @@
 Marvel Rivals Mod Menu 🎮✨
-Marvel Rivals Mod Menu is an advanced tool designed to enhance your gameplay experience by offering a range of exciting features. With this mod, players can unlock powerful cheats, access unlimited resources, and gain the ability to modify various in-game elements, giving them a competitive edge in the Marvel Rivals universe. Whether you're looking to boost your characters, unlock hidden abilities, or experiment with different strategies, the Marvel Rivals Mod Menu makes it easy to take your gameplay to the next level.
 
-🚀 Features:
+Marvel Rivals Mod Menu is a powerful tool that unlocks a variety of cheats and enhancements for your gameplay. With this mod menu, players can gain an edge by enabling features like aimbot, wallhack, unlimited stamina, and much more. Customize your game experience and easily access abilities that are normally restricted or difficult to obtain.
 
-Unlimited Resources: Enjoy a constant supply of in-game resources like gold, energy, and other valuable items.
-Character Enhancements: Upgrade your characters and unlock special abilities to dominate in battles.
-Unlock Skins & Cosmetics: Gain access to exclusive skins, costumes, and cosmetic items to personalize your heroes.
-Easy to Use: With a user-friendly interface, this mod allows you to make changes quickly and efficiently, without the need for technical knowledge.
-No Restrictions: Break free from the limitations of the regular game, and access features that are otherwise locked or difficult to obtain.
-Safe to Use: The mod uses secure methods to ensure that your account and progress remain safe while enjoying all the added benefits.
-Whether you're a casual player or aiming for top-tier performance, Marvel Rivals Mod Menu gives you the tools you need to enhance your gameplay and experience the game in a whole new way!
+🚀 **Features**:  
+1. **Aimbot**: Automatically aim at enemies with perfect accuracy, giving you an advantage in every battle.  
+2. **Wallhack**: See through walls to spot enemies and plan your strategies with ease.  
+3. **Unlimited Stamina**: Never worry about running out of stamina, allowing you to move, attack, and dodge endlessly.  
+4. **Speed Hack**: Move faster than your opponents, giving you a swift advantage in combat.  
+5. **Unlimited Health**: Stay invincible with infinite health, making you a tough opponent to defeat.  
+6. **No Cooldowns**: Use your abilities without waiting for cooldowns, giving you constant access to your most powerful skills.  
+
+Marvel Rivals Mod Menu provides all the essential tools to dominate the game, making it an essential mod for players looking to gain maximum control over their gameplay experience.
